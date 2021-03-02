@@ -1,4 +1,4 @@
-* music & books :musical_note:
-* riding my bike :bike:
-* travelling :earth_africa:
-😄
+* music & books 🎶
+* riding my bike 🚲
+* travelling 🌍
+
